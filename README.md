@@ -14,3 +14,4 @@ https://docs.google.com/drawings/d/1rj8QyHJ098yYLqfHBrHpNK7ba8AWdRrXKYiI3U3T6K8/
 - promoting YouTube videos/channels [4]
 - trolling/bullshitting [5]
 - other [6]
+- political[7]
